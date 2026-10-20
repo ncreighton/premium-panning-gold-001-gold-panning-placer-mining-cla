@@ -1,0 +1,2 @@
+# premium-panning-gold-001-gold-panning-placer-mining-cla
+Stop losing your claim to paperwork gaps and forgotten survey data. Your gold panning success depends on knowing exactly where the pay streak runs — and proving it on paper.  This Notion template organizes all your claim survey data, sample locations, and legal requirements into one searchable database. No more crumpled notebooks or missing coordin
